@@ -1,3 +1,5 @@
+"When I say I feel sadness, I mean the type of sadness that turns ordinary people into poets."
+--
 
 
 ![blinkiesCafe-Vx](https://github.com/user-attachments/assets/ae1282d2-7cc0-4d05-a2e7-b4ed941adbc7)
